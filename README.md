@@ -15,7 +15,7 @@
 
 ## 🧩 FlowChart
 
-![20](https://github.com/user-attachments/assets/bbb7456f-0267-4771-b111-8493fccd3ba8)
+![20  수정본](https://github.com/user-attachments/assets/94a14fd5-609e-40aa-a8be-a0492f17bea0)
 
 ---
 
